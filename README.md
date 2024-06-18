@@ -7,4 +7,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 frassao.maria@escola.pr.gov.br
 
-![](https://tenor.com/pt-BR/view/dog-massage-sleepy-gif-12692854)
+![](![dog-massage](https://github.com/dudonapaocomovo/dudonapaocomovo/assets/173158020/d9214bd3-2526-40da-aa89-cf456d40568d)
+)
